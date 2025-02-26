@@ -7,6 +7,7 @@
 💞️ I’m looking to collaborate on an amazing programming projects 
  
 📫 How to reach me at elviskiprop959@gmail.com
- 😄 Pronouns: programmer      
+ 
+😄 Pronouns: programmer      
  
 ⚡ Fun fact: programming 
